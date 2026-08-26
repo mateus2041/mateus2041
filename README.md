@@ -4,3 +4,5 @@
 ![cerrar sesion](https://i.pinimg.com/236x/a4/2f/80/a42f8044fdf7463872676902adbeef4b.jpg)
 ![cerrar sesion2](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQrg_K0CSZb5eLnrdJMqEIK7pQItwbkZZdk_2w8OiO29Q&s=10)
 ![cerrar sesion3](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSfcXE3TV271niT1mP7fBTfSqp-slsKpr_hfawMTdMv1A&s=10)
+![cerrar sesion4](https://i.pinimg.com/736x/3f/70/78/3f707899a4c5ac91c50375873fafff16.jpg)
+![cerrar sesion5](https://i.pinimg.com/736x/e2/12/9c/e2129c27d7a2e54d7ab7e1c016dc5e9a.jpg)
